@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Emylle
+- 👋 Hi, I’m @Emylle ,tenho 16 anos e gosto de sair e comer batata frita
 - 👀 I’m interested in ... jesus
 - 🌱 I’m currently learning,costurar
 - 💞️ I’m looking to collaborate on ... nobody
