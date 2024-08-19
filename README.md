@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... nobody
 - 📫 How to reach me ...
 - 😄 Pronouns: ... .
-- ⚡ Fun fact: ... I am incrible
+- ⚡ Fun fact: ... I am incrible 
 
 <!---
 Emylleferrer/Emylleferrer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
