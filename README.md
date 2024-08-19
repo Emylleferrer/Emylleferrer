@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Emylle
 - 👀 I’m interested in ... jesus
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning,costurar
 - 💞️ I’m looking to collaborate on ... nobody
 - 📫 How to reach me ...
 - 😄 Pronouns: ... .
